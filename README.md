@@ -1,15 +1,6 @@
-### TDK (title, description, keywords)
-
-**Title:** 91.com-New 91 Video-91 Web Version-91porny91 Version Free Watch
-
-**Description:** Provides high-definition, ad-free 91 video free viewing services, covering movies, TV series, variety shows and other types, supporting double-speed playback, screen projection and other functions to meet your viewing needs.
-**Keywords:** 91 Video, Free Watch, High-definition Movies, Double-speed Playback, Screen Projection, No Ads, 91 Web Version
-
----
-
 ### Introduction
 
-91.com-New 91 Video-91 Web Version-91porny91 Version is an online platform that provides rich film and television resources, dedicated to providing users with high-definition and smooth viewing experience. The platform brings together various popular movies, TV series, variety shows, etc. Users can watch the latest film and television works for free without registering or recharging membership.
+91-New 91 Video-91 Web Version-91porny91 Version is an online platform that provides rich film and television resources, dedicated to providing users with high-definition and smooth viewing experience. The platform brings together various popular movies, TV series, variety shows, etc. Users can watch the latest film and television works for free without registering or recharging membership.
 
 #### Platform Features:
 1. **High-definition quality**: The platform adopts advanced playback technology and supports high-definition and ultra-clear picture quality, ensuring that users can enjoy delicate pictures and smooth playback experience when watching.
